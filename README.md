@@ -1,0 +1,10 @@
+- 👋 Techieshub345/Techieshub345 
+- 🔗 https://www.youtube.com/channel/UCkfW7mAbsCmoe4M4DVMMAVw
+- 🌱 I’m currently learning everything 
+- 👯 I’m looking to collaborate with other content creator 
+- 🤔 I’m looking for help with code improve /or for optimize code 
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact:
+-->
